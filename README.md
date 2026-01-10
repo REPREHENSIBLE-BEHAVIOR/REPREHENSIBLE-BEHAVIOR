@@ -1,9 +1,1 @@
-<p align="center" width="100%">
-    <img width="100%" src="https://files.catbox.moe/jao9ru.png">
-</p>
-<p align="center" width="100%">
-    <img width="100%" src="https://files.catbox.moe/nfxm9v.png">
-</p>
-<p align="center" width="100%">
-    <img width="100%" src="https://files.catbox.moe/8nwgkt.png">
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=true&profanity=false&bar_color=000000&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=46865i4qmogx4i36n1cn5zv76&redirect=true)
