@@ -6,9 +6,9 @@
 
 > im 16!!!! id prefer if -13 and 20+ ppl wouldn't int but if ur chillchacho i dont mind lewl
 
-> I DONT GET INTO INTERNET DRAMA AT ALLLLLL. anti harrassment first and foremost i dont carrrr. if ur not hurting yourself or others do whatever u wannnt
+> I DONT GET INTO INTERNET DRAMA AT ALLLLLL. anti harrassment first and foremost i dont carrrr. if ur not hurting yourself or others do whatever u wannnt... it also means i pretty much dont have a DNI as soon as ur respectful and a #chiller
 
-> i sometimes talk weirdly and eccentrically and i ponder a lot so feel free to always and always and always ask me for clarification or tone or anything!!! i dont mind at all!!! it also means i pretty much dont have a DNI as soon as ur respectful and a #chiller
+> i sometimes talk weirdly and eccentrically and i ponder a lot so feel free to always and always and always ask me for clarification or tone or anything!!! i dont mind at all!!!
 
 > I AM A VERY OPTIMISTIC PERSON that is my main and only personality trait. if u get annoyed over people YOLOing and HEALING and COPING and HOPECOREING you're in the wrong isle pal...
 
